@@ -1,3 +1,1 @@
-laksjdhflkasjhdfljashdlfjahsufhwlafha;sdf
-asdfhbasldfbas
-aslhdfgashjkldgf
+link google docs hasil jawabannya
